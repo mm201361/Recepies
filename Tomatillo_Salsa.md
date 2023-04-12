@@ -3,6 +3,7 @@
 ## Ingredients 
 
 - 8 oz. Tomatillos, husked
+- 1 Jalapeno pepper
 - Cilantro, as much as you like
 - 1x Onion, sweet or yellow
 - Salt and pepper
