@@ -5,8 +5,8 @@
 - 1x Carrot, medium/small
 - 1x Galic clove
 - 1 tbsp. Rice vinegar
-- 1 tbsp. Sesame oil 
-
+- 1 tbsp. Sesame oil
+- 1 Salt
 
 ## Preperation 
 
